@@ -1,1 +1,0 @@
-kod mod yazmıyom malım
